@@ -2,7 +2,7 @@
 
 
 
-Brief video demo: https://drive.google.com/file/d/1CKrY3WH8c8gXRGHXXZXP/_MWmUyd4vOTK/view?usp=sharing
+Brief video demo: https://drive.google.com/file/d/1CKrY3WH8c8gXRGHXXZXP_MWmUyd4vOTK/view?usp=sharing
 
 
 
